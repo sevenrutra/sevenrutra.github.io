@@ -1,1 +1,0 @@
-# sevenrutra.github.io
